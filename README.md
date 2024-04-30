@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning CyberSecurity @ UNLV
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: www.linkedin.com/in/nelson-yahiro-49034896
-- 😄 Pronouns: Dude/Dudester
+- 😄 Pronouns: Dude-Duder-El-Duderino-His-Dudeness
 - ⚡ Fun fact: There are approximately 200 billion trillion stars in the Universe 
 
 <!---
