@@ -2,7 +2,7 @@
 - 👀 I’m interested in all things cyber related
 - 🌱 I’m currently learning CyberSecurity @ UNLV
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 How to reach me: www.linkedin.com/in/nelson-yahiro-49034896
 - 😄 Pronouns: Dude/Dudester
 - ⚡ Fun fact: There are approximately 200 billion trillion stars in the Universe 
 
