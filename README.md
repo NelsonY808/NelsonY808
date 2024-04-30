@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @NelsonY808
 - 👀 I’m interested in all things cyber related
 - 🌱 I’m currently learning CyberSecurity @ UNLV
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on: Always open to try new things and explore my horizons
 - 📫 How to reach me: www.linkedin.com/in/nelson-yahiro-49034896
 - 😄 Pronouns: Dude-Duder-El-Duderino-His-Dudeness
 - ⚡ Fun fact: There are approximately 200 billion trillion stars in the Universe 
